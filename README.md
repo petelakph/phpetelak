@@ -12,5 +12,4 @@ paulo.petelak.oliveira@escola.pr.gov.br
 
 @phpetelak
 
-
-![](https://media1.tenor.com/m/sLIuJuqBfSYAAAAd/luna-cat-crunchy-cat.gif)
+![](https://media1.tenor.com/m/hi7r-GJWZIcAAAAd/luna-crunchycat.gif)
